@@ -2,7 +2,6 @@
 - 👀 I’m interested in drawing, making movies, and more!
 - 🌱 I’m currently learning how to code and make movies!
 - 📫 Want to email me? My email is abstractiaproductions@gmail.com
-- 😄 Pronouns: We are a team so we don't care :)
 - ⚡ Fun fact: We just started!
 
 <!---
